@@ -2,3 +2,4 @@
 - [The Ultimate Newborn Photography Checklist for Calgary Moms — Start Planning in Your Second Trimester](https://thehowtoz.github.io/Articles/posts/newborn-photography-checklist-calgary-moms.html)
 - [How Much Does Newborn Photography Cost in Calgary? A No-Surprises Budget Guide for Expecting Moms](https://thehowtoz.github.io/Articles/posts/newborn-photography-cost-calgary.html)
 - [Newborn Photography Safety 101: 12 Questions Every Expecting Mother Must Ask Before Booking](https://thehowtoz.github.io/Articles/posts/newborn-photography-safety-questions.html)
+- [Studio vs. Lifestyle: Which Newborn Photography Style Fits Your Calgary Family?](https://thehowtoz.github.io/Articles/posts/studio-vs-lifestyle-newborn-photography-calgary.html)
